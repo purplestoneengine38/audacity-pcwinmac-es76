@@ -1,4 +1,4 @@
-# 
+# Turbo Audacity ferramentas para Mac OS | Instantâneo Audacity ferramentas para PC Windows. Com efeitos visuais e câmera virtual — otimizado para máximo desempenho em cada plataforma.
 
 
 
